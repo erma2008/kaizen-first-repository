@@ -1,0 +1,1 @@
+# kaizen-first-repository
